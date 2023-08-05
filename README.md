@@ -1,6 +1,7 @@
 # C196
 
-Contact Me , I will build Your project in your style
+Contact Me , I will build Your project in your style.
+will get approved in 1st attempt
 
 Instagram - Mrakbg - https://www.instagram.com/mrakbg/
 
